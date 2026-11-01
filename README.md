@@ -13,3 +13,6 @@ if i dont vibe, i block/hide or just dont engage. i suck with connection. please
 i tend to dissappear and disassociate a lot
 
 cuddles/hugs are fine ig
+
+Mads Mikkelsen my beloved be upon ye
+<img width="337" height="622" alt="dedf2b13dff998d3b9931dfc7e2f7634" src="https://github.com/user-attachments/assets/e7fd56ab-6dfc-4d9c-bf9a-ea0a01c896ab" />
