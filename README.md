@@ -1,5 +1,6 @@
 ### ***,,That man makes my hopeless romantic heart miserable."***
-<img width="736" height="736" alt="Untitled37_20260605023409" src="https://github.com/user-attachments/assets/31ae8c1e-89d2-4f14-88eb-e91f8978cdbf" />
+<img width="400" height="340" alt="3f5c204a44f891042e3bc069f2ddf265" src="https://github.com/user-attachments/assets/e0b4b4b4-9ecd-4e89-a91c-444e682735e0" />
+
 
 # i ***𝙧𝙚𝙖𝙡𝙡𝙮*** hate ships involving my favorites; ***really*** not sorry
 
@@ -7,6 +8,8 @@ please call me: Bugs/Ribs/Critter/Mourn/Horror/Paramite/Puppy/Mutt/Plague
 
 adult ; mdni
 
-if i dont vibe, i block/hide or just dont engage. i suck with connection and my chat is often off and im super zoomed in
+if i dont vibe, i block/hide or just dont engage. i suck with connection. please don't vent to me i never know what to say
+
+i tend to dissappear and disassociate a lot
 
 cuddles/hugs are fine ig
