@@ -3,7 +3,7 @@
 
 # i ***𝙧𝙚𝙖𝙡𝙡𝙮*** hate ships involving my favorites; ***really*** not sorry
 
-please call me: Cota/Kamora/Bugs/Ribs/Critter/Mourn/Horror/Paramite/Puppy/Mutt/Plague
+please call me: Bugs/Ribs/Critter/Mourn/Horror/Paramite/Puppy/Mutt/Plague
 
 adult ; mdni
 
